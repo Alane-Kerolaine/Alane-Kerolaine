@@ -7,5 +7,5 @@
 
 
 ### Contato
-Email: alanekerolaine@live.com / a.kerolainecarvalho@gmail.com
+Email: alanekerolaine@live.com / a.kerolainecarvalho@gmail.com <br>
 [Linkedin](https://www.linkedin.com/in/alane-kerolaine-g-l-carvalho/)

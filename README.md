@@ -1,4 +1,4 @@
-## Oi, é bom te ver aqui! <br> Muito prazer. 😁
+## Oi, é bom te ver aqui. <br> Muito prazer! 😁
 
 *"Quanto melhor ficamos em melhorar, mais rápido melhoraremos." - Douglas Engelbart* <br>
 
